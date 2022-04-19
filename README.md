@@ -1,5 +1,5 @@
 Profile is @BubblySauv
-- (i)already changed my name to @BubblyROSE though because I love pink :)(i)
+- (i)already changed my name to @BubblyROSE though because I love pink :)(/i)
 
 26<br>
 A mom <3 
